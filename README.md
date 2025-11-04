@@ -28,8 +28,9 @@ Student | Cyber Security Expert | Content Creator
 
 ---
 
-## 💞 Best Friend
-**মুরশিদা** — আমার সবচেয়ে কাছের বন্ধু ও অনুপ্রেরণা।
+💫 Best Friend: মুরশিদা 🩵
+She’s not just a friend — she’s my peace, my vibe, my forever support 🕊️
+
 
 ---
 
@@ -42,7 +43,9 @@ Student | Cyber Security Expert | Content Creator
 
 ### ✨ Connect With Me
 > 💬 যেকোনো সহযোগিতা বা আলোচনার জন্য যোগাযোগ করো  
-> 📧 *তুমি চাইলে এখানে নিজের ইমেইল বা অন্য সোশ্যাল লিংক যোগ করতে পারো*
+> 📧 jonebabumd1@gmail.com
+> Telegram @PICCIJERRY
+> Facebook Account: https://www.facebook.com/JONE.ON.FIRE.10
 
 ---
 
